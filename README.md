@@ -1,4 +1,4 @@
-[url=https://postimg.cc/2qRJgnhM][img]https://i.postimg.cc/2qRJgnhM/Screenshot-2022-02-04-at-17-29-03.png[/img][/url]
+[img]https://i.postimg.cc/2qRJgnhM/Screenshot-2022-02-04-at-17-29-03.png[/img][/url]
 
 [url=https://postimg.cc/GHf6JW2c][img]https://i.postimg.cc/GHf6JW2c/Screenshot-2022-02-04-at-17-29-17.png[/img][/url]
 
